@@ -1,0 +1,1 @@
+# photoshop-pro-edition-installer
